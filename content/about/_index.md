@@ -12,13 +12,13 @@ Town, building confidence, bridging social divides and forming connections with 
 ## What we do
 
 #### Indoor bouldering session
-We organise multiple indoor coaching sessions a week for vulnerable youth from youth homes around Cape Town at the city's premier indoor bouldering gym Bloc 11. We follow a training plan developed by our head training adviser Michelle Albertyn and our sessions are guided by experienced climbers who regularly invite some of South Africa’s top climbers to join the fun  
+We organise multiple indoor coaching sessions a week for vulnerable youth from foster homes around Cape Town at the city's premier indoor bouldering gym Bloc 11. We follow a training plan developed by our head training adviser Michelle Albertyn and our sessions are guided by experienced climbers who regularly invite some of South Africa’s top climbers to join the fun  
 
 #### Outdoor climbing days
 We have regular outdoor days in the month, bouldering and sport climbing around the Cape Peninsula under the supervision of experienced climbing guides  
 
-#### Introduction to climbing afternoons
-We offer to local outreach social initiatives working with vulnerable youth an introduction to climbing as a recreational activity so that their kids can come discover what is the sport about, have fun and test themselves against the problems. These events are hosted at Bloc 11 on a weekend afternoon, they are designed for groups of 10-15 youth who will be guided by experienced climbing coaches and our most committed team members. 
+#### Introduction to climbing course
+We offer introduction to climbing courses to local outreach initiatives working with youth who have had experienced a difficult start. Over a two hour course led by an experienced climbing coach, a group of 10 youth can come discover what is the sport about at no cost.
 If you are involved with such social initiatives and would like to explore the possibility to collaborate, kindly get in touch with us.
 
 ## Why climbing  
